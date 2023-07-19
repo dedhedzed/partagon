@@ -31,4 +31,9 @@
 * A one-click, minimal installation size, resource easy solution for all your Vanagon needs.
 
 ### What's that PGEdit thing? ###
-* PGEdit lets the end user easily and safely make modifications to Partagon's CSV files, tweak .pgc files
+* PGEdit lets the end user easily and safely make modifications to Partagon's CSV files ~~and tweak .pgc files (Partagon Config Files).~~ not yet!
+* It's still a HUUUUUUUUUUGE WIP, as is Partagon.
+
+### When's Partagon gonna be updated? ###
+* HAHAHAHAHAHAHAHAHAHAHAHAHAHAHAHAHAHAHAHAHAHAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA
+* On a more serious note, **whenever I can**.
