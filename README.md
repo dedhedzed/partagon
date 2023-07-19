@@ -37,3 +37,13 @@
 ### When's Partagon gonna be updated? ###
 * HAHAHAHAHAHAHAHAHAHAHAHAHAHAHAHAHAHAHAHAHAHAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA
 * On a more serious note, **whenever I can**.
+
+* ### ***Ebegging and More***
+:coin: [beer me bro](https://ko-fi.com/zedalicious "beer prices went up what can I say?") :coin:
+
+:postbox: [send me hate mail](mailto://zed@zed.industries "or nudes, especially if yer a young goth with big boobs") :postbox:
+
+:city_sunset: [zed industries' homepage](https://zed.industries "fuckin BRAND NEW!") :city_sunset:
+
+:movie_camera: [zed industries' YT channel](https://youtube.com/@zed.industries "what's up youtube it's your boy kingcobrajfs") :movie_camera:
+
